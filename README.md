@@ -1,1 +1,6 @@
-Auuuauuuughhh
+![tumblr_3c268327b5d0b3fa57855b4b5d842c13_e984f041_1280](https://github.com/user-attachments/assets/00c05e43-4864-43e9-a67f-24e0c7a4fedb)
+
+![Untitled148_20240822125009](https://github.com/user-attachments/assets/5aaf4e1a-1356-461a-b3e4-c8a1d7103b74)
+
+***Link***er / *Sin*ner ,, they/them + . **aliven't** Pan**romantic** , *Aego*sexual, *Gender****fluid***.
+*- ⊹ ࣪ ˖ soon to be **15** !* — ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ***!!! ![tumblr_7c7a64d737b5f206bbd960eaea2da30e_d2f60e01_75 gif](https://github.com/user-attachments/assets/0238e456-76ee-47e3-a24a-0ce403738211)‎!!! dni***;  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ -**helluva boss + hotel hazbin fandom**,  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎-very sensitive people,  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ -traumadumps w/o permission,  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ -female + babies/uwu types of sanses (heavy on ink, dream, swap, geno and killer.), ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ -**LUSTTALE** (I DONT CARE IF YOU DON'T SUPPORT IT I WANT IR GONE AND FORGOTTEN. *not applied to systems*.)
